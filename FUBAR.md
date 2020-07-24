@@ -13,4 +13,6 @@ step 2
 Now look at this amazing feature we did!
 
 step 3
+
 Kraken TEAM
+
